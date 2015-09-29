@@ -9,6 +9,7 @@
 - [BRUTTO](/2015/brutto.md)
 - [Woodkid](/2015/woodkid.md)
 - [Gogol Bordello](/2015/gogol-bordello.md), Eugene Hütz
+- [Серебро](/2015/serebro.md)
 - Radiohead
 - Damien Rice
 - Чайф

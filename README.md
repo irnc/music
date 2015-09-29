@@ -33,3 +33,22 @@
 - Charlotte Gainsbourg
 - The Doors
 - Rolling Stones
+
+## 2011
+
+- Al Hirt
+
+## 2010 and earlier
+
+- Justyna Steczkowska
+- Agnieszka Włodarczyk
+- Ani DiFranco
+- CAN
+  - She Brings The Rain
+- Я нарадзіўся тут
+- Чайф
+
+## 2005
+
+- 5'nizza
+- Сплин

@@ -1,5 +1,9 @@
 # music
 
+## 2016
+
+- [David Bowie](/2016/david-bowie.md)
+
 ## 2015
 
 - [ili-ili](/2015/ili-ili.md)

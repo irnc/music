@@ -5,6 +5,7 @@
 - [David Bowie](/2016/david-bowie.md)
 - Сплин - Ключ к шифру (альбом 2016)
 - [Борис Гребенщиков - СОЛЬ](https://www.youtube.com/watch?v=mHx9qVHGfGg)
+  - [Праздник Урожая Во Дворце Труда](https://www.youtube.com/watch?v=_Pj5PMr6sKY)
 
 ## 2015
 

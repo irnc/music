@@ -1,13 +1,15 @@
 # music
 
-## 2016
+## 2017
 
-- Tom Waits
-  - No One Knows I'm Gone
-- [David Bowie](/2016/david-bowie.md)
-- Сплин - Ключ к шифру (альбом 2016)
+- [Tom Waits](/2017/tom-waits.md)
 - [Борис Гребенщиков - СОЛЬ](https://www.youtube.com/watch?v=mHx9qVHGfGg)
   - [Праздник Урожая Во Дворце Труда](https://www.youtube.com/watch?v=_Pj5PMr6sKY)
+- [David Bowie](/2016/david-bowie.md)
+
+## 2016
+
+- Сплин - Ключ к шифру (альбом 2016)
 
 ## 2015
 

@@ -1,5 +1,10 @@
 # music
 
+## 2018
+
+- Серебряная свадьба
+  - [Вечная весна (ГрОб cover)](https://www.youtube.com/watch?v=_3V3NWd0W3U)
+
 ## 2017
 
 - [Tom Waits](/2017/tom-waits.md)

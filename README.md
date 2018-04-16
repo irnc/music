@@ -4,6 +4,8 @@
 
 - Серебряная свадьба
   - [Вечная весна (ГрОб cover)](https://www.youtube.com/watch?v=_3V3NWd0W3U)
+  - https://www.youtube.com/playlist?list=PL-ErdnKOnYq48P8wVRAa89UjCgfjMtcV5
+  - [Спрятаться и скрыться @Yotaspace 12-11-15](https://www.youtube.com/watch?v=aj7Te-LYscw)
 
 ## 2017
 
